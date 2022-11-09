@@ -5,3 +5,4 @@
 - 📫 You can reach me:
 - Email: workzero2kay@gmail.com
 - linkedin: https://www.linkedin.com/in/malik-stolle-42300b256/
+or just text me on github :D
